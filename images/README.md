@@ -1,1 +1,1 @@
-# CS2 Skins
+# CS2 Skins images
